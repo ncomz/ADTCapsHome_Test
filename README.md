@@ -1,5 +1,5 @@
-# iOS 캡스홈 Test
+# iOS 캡스홈 Test Server
 
 0.1.2.7
 
-click [** HERE **](http://tinyurl.com/gqdw5hq) to install the app.
+click [** HERE **](http://tinyurl.com/zxbmp6l) to install the app.
