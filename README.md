@@ -2,4 +2,4 @@
 
 0.1.2.7
 
-click [** HERE **](http://tinyurl.com/zxbmp6l) to install the app.
+click [** HERE **](http://tinyurl.com/zgsjgcq) to install the app.
